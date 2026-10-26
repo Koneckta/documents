@@ -60,6 +60,6 @@ We may update this Privacy Policy from time to time. Changes will be posted on t
 ## Contact Us
 If you have questions about this Privacy Policy, please contact us at:
 
-**support@koneckta.com**
+**fernanda@koneckta.com**
 
 Koneckta Limited
