@@ -4,7 +4,7 @@ Thanks for using GeoScratch! If you need help, have feedback, or want to report 
 
 ## Contact
 
-Email: **support@koneckta.com**
+Email: **fernanda@koneckta.com**
 
 When contacting support, please include:
 
