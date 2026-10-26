@@ -101,6 +101,6 @@ Your continued use of GeoScratch after updated Terms take effect means that you 
 For questions about these Terms, contact:
 
 **Koneckta Limited**  
-Email: **support@koneckta.com** 
+Email: **fernanda@koneckta.com** 
 
 Support: https://koneckta.github.io/documents/support
